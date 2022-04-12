@@ -1,1 +1,1 @@
-Mini proejtos para fixação das aprendizagens
+Mini projetos para fixação das aprendizagens
